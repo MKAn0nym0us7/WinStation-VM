@@ -61,3 +61,6 @@ Bitcoin Donation
 Monero Donation
 
 4AHVoG2iikrMeSy4Xgnjd4Mkig6TzCzgEUFpn2MxuoLJFsDhb4kPdiWgyhyMtnbPRafW1psEnpRWs6sgwuJZkBxvSuRmrVB
+
+
+© Dimension X
