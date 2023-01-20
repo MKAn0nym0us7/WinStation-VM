@@ -52,3 +52,8 @@ WinStation
 
 
 https://mega.nz/#!U0h0RaTR!aBSdb1IgmfVKNi2Ts1Toxvcwnu2JNzeHL4W2ixOZJOo
+
+
+Bitcoin Donation
+
+35TaRswtBRX9qa7RNanEbBx3FxJbMLH9Hy
